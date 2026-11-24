@@ -1,1 +1,1 @@
-# vac-project-1
+# Digital Literacy Workshop for Rural Students
